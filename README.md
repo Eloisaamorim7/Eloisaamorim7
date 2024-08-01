@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Eloisaamorim7
 - 👀 I’m so beaultiful
-- 🌱 I’m traying be better every day
+- 🌱 I’m trying be better every day
 - 💞️ I’m looking to collaborate on music
 
 
